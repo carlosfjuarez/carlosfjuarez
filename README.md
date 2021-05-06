@@ -1,6 +1,8 @@
 - 👋 Hi, I’m @carlosfjuarez
 - 🌱 I’m currently learning laws 
-- 📫 How to reach me
+- 📫 How to reach me 
+- f@ Fernando Juárez 
+- IG @Carlos_f_juarez
 
 
 <!---
